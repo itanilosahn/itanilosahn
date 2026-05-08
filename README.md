@@ -2,7 +2,7 @@
   <img src="https://files.catbox.moe/58m53d.png" alt="/>
 </p>
 
-## Placid | All pronouns
+### <p align="middle">Placid or Alice</p>  
 
 <p align="center">
   <img src="https://files.catbox.moe/jdwehg.jpeg" alt="" width="250" />
