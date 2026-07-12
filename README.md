@@ -16,5 +16,5 @@
 <p align="center">i really love apollo, graves, and rem trio.<br />i don't mind romantic necrofencer but it's not something i'm into.</p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/n5lj86.png" />
+  <img src="https://files.catbox.moe/kjj890.png" />
 </p>
